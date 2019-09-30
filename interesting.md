@@ -7,4 +7,7 @@ Get confident: 10-MINUTE MENTAL TOUGHNESS by Dr. Jason Selk
 
 &nbsp;
 
+How to Stop Worrying and Start Living by Dale Carnegie
+* https://www.youtube.com/watch?v=4UYYzbzGk6s
+
 &nbsp;
