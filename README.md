@@ -37,3 +37,14 @@ HTML Forms - Part 1 and 2| Web Technologies Tutorial | Mr.Subbaraju
 https://www.youtube.com/watch?v=6p9s0GuPGn0
 
 https://www.youtube.com/watch?v=aa1SoYQ62NQ
+
+
+
+
+
+
+
+java channel
+https://www.youtube.com/user/nareshtechnologies/videos\
+
+https://www.youtube.com/playlist?list=PLVlQHNRLflP8ZWgR33Z7P1WtwBMZja9kP
